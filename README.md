@@ -1,2 +1,9 @@
 # Auto-Register-Eiger-Tada-Wallet
-How To USE
+BOT Auto Register Eiger & Tada Wallet
+Claim Voucher 50K & 100K (Di Hari Ulang Tahun(Besok))
+
+Tutorial Penggunaan YT: 
+
+Credits By : M34L@IsmailMuhammadZeindy
+
+#DWYOR
