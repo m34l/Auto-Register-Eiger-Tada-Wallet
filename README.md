@@ -4,6 +4,6 @@ Claim Voucher 50K & 100K (Di Hari Ulang Tahun(Besok))
 
 Tutorial Penggunaan YT: 
 
-Credits By : M34L@IsmailMuhammadZeindy
+Credits By : OTPKU & M34L@IsmailMuhammadZeindy
 
 #DWYOR
